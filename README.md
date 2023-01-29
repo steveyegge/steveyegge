@@ -13,8 +13,9 @@ For anyone curious, here are some stints/stretches from my life so far, last upd
 - 6.5 years (98-05) at Amazon in various roles, including the "role" of selling my 40000 shares at like $80
 - 12.5 years at Google, doing lots of stuff, but most notably Grok (their Code Intelligence Platform)
 - 2.5 years at Grab Inc, the "Uber+Paypal of Southeast Asia". Got the adventure of a lifetime and PTSD.
-- 25 years working part-time on Wyvern, a video game I dreamed of in 1996
-- 40 years of playing guitar in different styles/genres
+- 25+ years working part-time on Wyvern, a video game I dreamed of in 1996
+- 40+ years of playing guitar in different styles/genres
+- happily married since 2004
 - 10 years a smoker
 - 30 years a drinker
 - sober since 2016
