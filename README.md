@@ -16,8 +16,5 @@ For anyone curious, here are some stints/stretches from my life so far, last upd
 - 25+ years working part-time on Wyvern, a video game I dreamed of in 1996
 - 40+ years of playing guitar in different styles/genres
 - happily married since 2004
-- 10 years a smoker
-- 30 years a drinker
-- sober since 2016
 
 I joined Sourcegraph in 2022 and hope to be there for a very long time.
